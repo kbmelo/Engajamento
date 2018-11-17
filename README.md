@@ -1,2 +1,12 @@
 # Engajamento
 # EDITANDO
+# BOM DIA COMEÇA COM ALEGRIA!!!!1
+# BOM DIA COMEÇA COM AMOR!!!!!
+# Engajamento
+
+mudando alguma coisa
+
+QUANDO A FADA DO DENTE PASSA ELA DEIXA:
+[] UM DENTINHO
+[]UMA GRANA
+[X]SUA APROVACAO NO CITI
